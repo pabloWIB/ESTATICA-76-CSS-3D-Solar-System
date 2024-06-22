@@ -1,0 +1,1 @@
+![_C__Users_pablo_Desktop_ESTATICAS_PACK20ESTATICAS_20 %20ESTATICA_css-3d-solar-system_dist_index html(iPad Mini)](https://github.com/pabloWIB/ESTATICA-76-CSS-3D-Solar-System/assets/116923433/51b04663-06af-4511-a22f-885580d0fbe4)
